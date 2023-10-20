@@ -1,4 +1,4 @@
-### ola seja muito bem vindo ao meu perfil 😺
+### ola seja muito bem vindo ao meu perfil 🐱
 
 eu me chamo  *Yasmin Leal*
 
@@ -7,7 +7,7 @@ eu me chamo  *Yasmin Leal*
 - Ultilizo esse espaço para minha organização e compartilhamento dos meus projetos
 - E eu curto muito tocar guitara
 
-### Você pode entrar em contato comigo 📫
+### Você pode entrar em contato comigo 📧
 
 yasmin.leal.moraes@escola.pr.gov.br
 
